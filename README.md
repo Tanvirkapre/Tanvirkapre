@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I am TAnvir Kapre
+I am Tanvir Kapre
